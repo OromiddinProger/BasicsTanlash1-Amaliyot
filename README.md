@@ -1,0 +1,1 @@
+# BasicsTanlash1-Amaliyot
